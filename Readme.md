@@ -8,5 +8,3 @@ Gostou do curso?
 
 
 asd
-
-
